@@ -1,0 +1,2 @@
+# Amaalgroups
+Amaal Groups is your trusted partner for growth—connecting businesses, buyers, and sellers through innovative solutions. From eCommerce services to product sourcing and digital support, we empower entrepreneurs with tools to succeed. Together, we build opportunities that inspire progress.
